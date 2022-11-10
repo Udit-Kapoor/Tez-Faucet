@@ -11,3 +11,8 @@ BEtter-Call DEv : https://better-call.dev/ghostnet/KT1KSi1cXiBKnCiVusnA689eyUY3d
 Opentezos : https://opentezos.com/smartpy/
 
 Temple Wallet :  https://templewallet.com/
+
+
+Linked In : https://www.linkedin.com/in/udit-kapoor-192767191/
+
+Twitter : https://twitter.com/pichkari6
